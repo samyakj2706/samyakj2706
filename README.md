@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @samyakj2706
-Trying to do better
+- Trying to do better
 <!---
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
